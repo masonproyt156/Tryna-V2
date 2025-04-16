@@ -1,1 +1,1 @@
-# Tryna-V2
+# Tryna
